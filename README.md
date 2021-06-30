@@ -1,0 +1,1 @@
+Tres Leches Cake has a soft and ultra-moist crumb. It is soaked with a 3 milk mixture and topped with a lightly sweetened whipped cream. This is an authentic Tres Leches Cake recipe and the best we have tried. It beats any store-bought version all day long!
